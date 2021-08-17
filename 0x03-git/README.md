@@ -1,1 +1,1 @@
-Getting more interesting wit theh command
+Getting more interesting with the command
